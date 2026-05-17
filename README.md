@@ -10,5 +10,7 @@
   <p>
     <strong>call me bee or rynn! 𝜗ৎ </strong><br>
     she / they / neos
+    
+  @TennaOnStage makes all my skins n stuff
   </p>
 </div>
